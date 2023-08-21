@@ -234,3 +234,5 @@ The stranger quickly disappeared and a short man in an expensive suit, with a sl
 
 
 💡 [Tap here](https://forms.yandex.ru/cloud/641819b3c09c022518e7a4f3/) **to leave your feedback on the project**. Pedago Team really tries to make your educational experience better.
+
+## FINISH Completed (402 XP, 134%) ✅
